@@ -1,3 +1,6 @@
+https://tenor.com/view/p5t-joker-persona-5-tactica-persona-5-persona-ren-amamiya-gif-6964445778461202844
+
+
 heyoo, i'm cifenia or cif. read my rentry for more info..
 
 please refrain from copying my ponies! i work very hard on them n don't appreciate people copying them.
